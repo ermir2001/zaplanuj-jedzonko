@@ -1,2 +1,2 @@
-Zaplanuj jedzonko stworzone przez Marek Zamorski, Joanna Szczerbowska-Kowal i Krystian Kościelecki
+Zaplanuj jedzonko projekt stworzony przez Marek Zamorski, Joanna Szczerbowska-Kowal i Krystian Kościelecki
 
